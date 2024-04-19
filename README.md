@@ -1,4 +1,4 @@
-# Customer-Chrun-case-study-
+# Customer-Chrun-case-study
 
 
 #### Overview:
